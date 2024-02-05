@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thys Maree
-- 👀 I’m interested in astronoy and amateur radio
+- 👀 I’m interested in astronomy and amateur radio
 - 🌱 
 - 💞️ 
 - 📫 How to reach me: thys@mjm.co.za
